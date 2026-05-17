@@ -29,3 +29,5 @@ my favorite yuri mangas special mention!
 <img width="1199" height="1700" alt="cb0d984fa6b8663cb1c5ac8574e338c5" src="https://github.com/user-attachments/assets/ad24e63c-3712-4326-b5a4-3092ee5e49fa" />
 <img width="736" height="1044" alt="983ddd1446d7bb9e319b0017084795f9" src="https://github.com/user-attachments/assets/485a1229-d4e8-4e96-9df0-5c5c12e1f4ac" />
 <img width="1027" height="1541" alt="0e2d5ccab0d7faad1b54b65d2db25ca3" src="https://github.com/user-attachments/assets/20364253-fec0-4fc4-a199-0c8b80c6d0c1" />
+
+This is just most of it! big dni if you love/like bad thinking diary or any manhwa made by the same author, thank you.
