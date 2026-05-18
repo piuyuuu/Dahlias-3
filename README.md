@@ -3,7 +3,6 @@
 my favorite yuri mangas/manwhas/books/baihe special mention!
 
 <img width="736" height="1048" alt="4012583050f7db1b2141d570caca11fd" src="https://github.com/user-attachments/assets/4de1ddd0-01ea-4c25-a93d-83226ad5b0d4" />
-<img width="679" height="977" alt="82abd7c58025f3a11a7b8834c5b7357a" src="https://github.com/user-attachments/assets/897016de-91aa-4c55-8693-5892a3238bf0" />
 <img width="901" height="1280" alt="c2e091ca5fbf6115984e09ff6e9d9590" src="https://github.com/user-attachments/assets/b9991912-6f6c-4089-9a92-277e437414c4" />
 <img width="995" height="1371" alt="2d7a73a5418d7823b33638cc73c3d29d" src="https://github.com/user-attachments/assets/3e2179c8-b50d-416c-b78a-7b8f49685230" />
 
