@@ -50,6 +50,8 @@
 <p align="center"><img width="736" height="1048" alt="983ddd1446d7bb9e319b0017084795f9" src="https://github.com/user-attachments/assets/485a1229-d4e8-4e96-9df0-5c5c12e1f4ac" />
 <p align="center"><img width="736" height="1048" alt="0e2d5ccab0d7faad1b54b65d2db25ca3" src="https://github.com/user-attachments/assets/20364253-fec0-4fc4-a199-0c8b80c6d0c1" />
 
+<p align="center"><img width="736" height="500" alt="32379a51981d568cff4c59ebde12948e" src="https://github.com/user-attachments/assets/3975b17f-8db9-4e69-8d41-7cdba93b9191" />
+
 
 
 <p align="center"> °˖➴𝒯𝒽𝒾𝓈 𝒾𝓈 𝒿𝓊𝓈𝓉 𝓂𝑜𝓈𝓉 𝑜𝒻 𝒾𝓉! 𝐼𝒻 𝓎𝑜𝓊 𝓇𝑒𝒶𝒹 𝒶𝓃𝓎 𝑜𝒻 𝓉𝒽𝑒𝓈𝑒, 𝓎𝑜𝓊𝓇𝑒 𝑔𝑜𝒶𝓉𝑒𝒹!(˶ˆᗜˆ˵)
