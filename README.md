@@ -32,6 +32,9 @@ my favorite yuri mangas/manwhas/books/baihe special mention!
 <img width="900" height="1280" alt="6663a277b48058624d8030186ef6a7fb" src="https://github.com/user-attachments/assets/5f365403-3f1e-4ea6-a585-f15c70289911" />
 <img width="600" height="854" alt="470465c6dac6c6abf9e258846c1baaec" src="https://github.com/user-attachments/assets/b6a4d067-8a75-498a-a5f8-e52ec872cbf5" />
 <img width="1055" height="1500" alt="712f939ed25d7655231ef32de450d633" src="https://github.com/user-attachments/assets/d7371a5e-0161-45fe-ad00-7089e5223c9b" />
+<img width="759" height="1024" alt="2d14552124b7f8309ee195d29613506a" src="https://github.com/user-attachments/assets/e306948f-5bdf-40e3-9059-c2839d4827b1" />
+<img width="1055" height="1500" alt="a7584b6007427e5297ef4403dadb6b23" src="https://github.com/user-attachments/assets/ec37401c-3689-46e5-8659-ddc7c1b7276d" />
+
 <img width="1199" height="1684" alt="dc305684f76e6c97b8eb3125b73b87ea" src="https://github.com/user-attachments/assets/0d3666d7-2285-4bb9-beb8-593585cf9f8d" />
 <img width="574" height="828" alt="51a4ba2d5ed0993ba1fcacdfd9964fd4" src="https://github.com/user-attachments/assets/18f757fb-6cf5-4d45-8951-d0f2e04922dc" />
 <img width="736" height="1175" alt="4368e450f8e23ede35486f48b18dfe44" src="https://github.com/user-attachments/assets/15b8c902-6720-4a05-95e7-6f9d1df3d3c9" />
