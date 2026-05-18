@@ -48,6 +48,8 @@
 <p align="center"><img width="736" height="1048" alt="b940992932d28ec816f279a983775afc" src="https://github.com/user-attachments/assets/a03a40fc-787d-4172-b379-cb4f8f72371e" />
 <p align="center"><img width="736" height="1048" alt="1ece067c79cabd9dc799c794f79d6078" src="https://github.com/user-attachments/assets/b7e8a146-a40f-487e-ae54-573ebb1dd647" />
 <p align="center"><img width="736" height="1048" alt="983ddd1446d7bb9e319b0017084795f9" src="https://github.com/user-attachments/assets/485a1229-d4e8-4e96-9df0-5c5c12e1f4ac" />
-<p align="center"><img width="736" height="1048" alt="0e2d5ccab0d7faad1b54b65d2db25ca3" src="https://github.com/user-attachments/assets/20364253-fec0-4fc4-a199-0c8b80c6d0c1"
+<p align="center"><img width="736" height="1048" alt="0e2d5ccab0d7faad1b54b65d2db25ca3" src="https://github.com/user-attachments/assets/20364253-fec0-4fc4-a199-0c8b80c6d0c1" />
+
+
 
 <p align="center"> °˖➴𝒯𝒽𝒾𝓈 𝒾𝓈 𝒿𝓊𝓈𝓉 𝓂𝑜𝓈𝓉 𝑜𝒻 𝒾𝓉! 𝐼𝒻 𝓎𝑜𝓊 𝓇𝑒𝒶𝒹 𝒶𝓃𝓎 𝑜𝒻 𝓉𝒽𝑒𝓈𝑒, 𝓎𝑜𝓊𝓇𝑒 𝑔𝑜𝒶𝓉𝑒𝒹!(˶ˆᗜˆ˵)
