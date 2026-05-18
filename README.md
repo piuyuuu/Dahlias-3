@@ -49,6 +49,7 @@ my favorite yuri mangas/manwhas/books/baihe special mention!
 <img width="657" height="960" alt="dbaa73cc804a2b70a31a019648113045" src="https://github.com/user-attachments/assets/1b6c4dd4-696b-417b-a87d-79dd6a26199c" />
 <img width="736" height="1048" alt="44a53d5022275af38ba1d8eb18816c4c" src="https://github.com/user-attachments/assets/db1358c9-037c-47bd-803d-ac6947436956" />
 <img width="735" height="1054" alt="b940992932d28ec816f279a983775afc" src="https://github.com/user-attachments/assets/a03a40fc-787d-4172-b379-cb4f8f72371e" />
+<img width="850" height="1200" alt="1ece067c79cabd9dc799c794f79d6078" src="https://github.com/user-attachments/assets/b7e8a146-a40f-487e-ae54-573ebb1dd647" />
 
 <img width="736" height="1044" alt="983ddd1446d7bb9e319b0017084795f9" src="https://github.com/user-attachments/assets/485a1229-d4e8-4e96-9df0-5c5c12e1f4ac" />
 <img width="1027" height="1541" alt="0e2d5ccab0d7faad1b54b65d2db25ca3" src="https://github.com/user-attachments/assets/20364253-fec0-4fc4-a199-0c8b80c6d0c1" />
