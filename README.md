@@ -1,5 +1,4 @@
 
-# Dahlias-3
 my favorite yuri mangas/manwhas/books/baihe special mention!
 
 <img width="736" height="1048" alt="4012583050f7db1b2141d570caca11fd" src="https://github.com/user-attachments/assets/4de1ddd0-01ea-4c25-a93d-83226ad5b0d4" />
